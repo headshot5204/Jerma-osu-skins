@@ -5,19 +5,19 @@ Also, a few of these skins are merely jokes and are very unplayable
 
 
 
-## [Mrekk Artistia](https://drive.google.com/file/d/1mhrOToS69c0sS_NrdLtJ6mToELgpwSDb/view?usp=drive_link) -
+## [Mrekk Artistia](https://drive.google.com/file/d/1mhrOToS69c0sS_NrdLtJ6mToELgpwSDb/view?usp=drive_link) 
 ![](https://cdn.discordapp.com/attachments/720453578543726642/1194743470968012860/screenshot728.jpg?ex=65b17690&is=659f0190&hm=2377777dd1ea9ec07cebd2ed6f2bcaf15cdd14f4788269bf0f14e2ae878d209e&)
 
-## [Mrekk Flowfy](https://drive.google.com/file/d/1o4ddc0M3kSCHfEm0VXXgKQq3souygV0c/view?usp=sharing) -
+## [Mrekk Flowfy](https://drive.google.com/file/d/1o4ddc0M3kSCHfEm0VXXgKQq3souygV0c/view?usp=sharing) 
 ![](https://cdn.discordapp.com/attachments/720453578543726642/1194744381962465330/screenshot729.jpg?ex=65b17769&is=659f0269&hm=c2673c9ca045159cf92ef0f29fd63642ec7c0bf41fc3254d800fec890dd88acf&)
 
-## [Sakamata Chloe](https://drive.google.com/file/d/1F0O1B6ISJ0bueaWSByr58E4jn-NNX05l/view?usp=sharing) -
+## [Sakamata Chloe](https://drive.google.com/file/d/1F0O1B6ISJ0bueaWSByr58E4jn-NNX05l/view?usp=sharing) 
 ![](https://cdn.discordapp.com/attachments/720453578543726642/1194745562587725885/screenshot730.jpg?ex=65b17883&is=659f0383&hm=2e70aa48641d77c3596b0be5cd6a3de261ab1695af6ee58a129d897f08ea45b4&)
 
-## [WhiteCat 2.1 Old](https://drive.google.com/file/d/1DZr8-Oo2Z_M7KDN2D4VDYjSv4YB5CnVh/view?usp=sharing) -
+## [WhiteCat 2.1 Old](https://drive.google.com/file/d/1DZr8-Oo2Z_M7KDN2D4VDYjSv4YB5CnVh/view?usp=sharing) 
 ![](https://cdn.discordapp.com/attachments/720453578543726642/1194746418875875329/screenshot737.jpg?ex=65b1794f&is=659f044f&hm=06a97058531961dfc7ef3ef822188fe1556197ac0b21903a7542ecd2e10104c2&)
 
-## [Family Guy Joke Skin](https://drive.google.com/file/d/1xOzXyeDiioZTxO9vRfi5P8dXEflD9muV/view?usp=sharing) -
+## [Family Guy Joke Skin](https://drive.google.com/file/d/1xOzXyeDiioZTxO9vRfi5P8dXEflD9muV/view?usp=sharing) 
 ![](https://cdn.discordapp.com/attachments/720453578543726642/1194752484233728101/screenshot738.jpg?ex=65b17ef5&is=659f09f5&hm=beda4f08648d270e03f051192c6f15a43e4c70923aa5711a6b00f8d0032d6b66&)
 
 ## [Family Guy Jok Skin 2](https://drive.google.com/file/d/1moAWRBTkCMMbH40gJemyZ62pxFp1MZC1/view?usp=sharing)
