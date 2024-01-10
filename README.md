@@ -1,5 +1,5 @@
-# These are all the skins I have downloaded at the time of January 1st 2024I want to make this as an archive for my skins
-there is a chance some of these don't download correctly compared to the images i have, if they do i am sorry!
+# These are all the skins I have downloaded at the time of January 1st 2024, I want to make this as an archive for my skins
+there is a chance some of these don't download correctly compared to the images I have, if they do I am sorry!
 
 Also, a few of these skins are merely jokes and are very unplayable
 
