@@ -6,7 +6,7 @@ Also, a few of these skins are merely jokes and are very unplayable
 
 
 ## [Mrekk Aristia](https://drive.google.com/file/d/1mhrOToS69c0sS_NrdLtJ6mToELgpwSDb/view?usp=drive_link) 
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194743470968012860/screenshot728.jpg?ex=65b17690&is=659f0190&hm=2377777dd1ea9ec07cebd2ed6f2bcaf15cdd14f4788269bf0f14e2ae878d209e&)
+![](https://media.discordapp.net/attachments/864983473819353138/1205335359517499502/screenshot842.jpg?ex=65d7ff07&is=65c58a07&hm=e04763e060d4dc4bdaa511e94e9f786ecc70a57652865982b1b17a969246ba02&=&format=webp&width=1127&height=634)
 
 ## [Mrekk Flowfy](https://drive.google.com/file/d/1o4ddc0M3kSCHfEm0VXXgKQq3souygV0c/view?usp=sharing) 
 ![](https://cdn.discordapp.com/attachments/720453578543726642/1194744381962465330/screenshot729.jpg?ex=65b17769&is=659f0269&hm=c2673c9ca045159cf92ef0f29fd63642ec7c0bf41fc3254d800fec890dd88acf&)
