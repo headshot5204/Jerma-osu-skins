@@ -17,15 +17,6 @@ Also, a few of these skins are merely jokes and are very unplayable
 ## [WhiteCat 2.1 Old](https://drive.google.com/file/d/1DZr8-Oo2Z_M7KDN2D4VDYjSv4YB5CnVh/view?usp=sharing) 
 ![](https://cdn.discordapp.com/attachments/720453578543726642/1194746418875875329/screenshot737.jpg?ex=65b1794f&is=659f044f&hm=06a97058531961dfc7ef3ef822188fe1556197ac0b21903a7542ecd2e10104c2&)
 
-## [Family Guy Joke Skin](https://drive.google.com/file/d/1xOzXyeDiioZTxO9vRfi5P8dXEflD9muV/view?usp=sharing) 
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194752484233728101/screenshot738.jpg?ex=65b17ef5&is=659f09f5&hm=beda4f08648d270e03f051192c6f15a43e4c70923aa5711a6b00f8d0032d6b66&)
-
-## [Family Guy Jok Skin 2](https://drive.google.com/file/d/1moAWRBTkCMMbH40gJemyZ62pxFp1MZC1/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194752829974401044/screenshot739.jpg?ex=65b17f48&is=659f0a48&hm=da1059fc7e8e1bda28e295a41a71aa8843d243d8124d0437f68ab8a45ff96707&)
-
-## [FNAF Joke Skin](https://drive.google.com/file/d/14grkbiXATN7h-4b5O43ppGrrFMt5OwBv/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194753082387595334/screenshot740.jpg?ex=65b17f84&is=659f0a84&hm=0e0e7cc73bdd60c0e4d7785ac345aa476807da1c3cc2252c82417c2b4b96765c&)
-
 ## [Hayase Yuuka](https://drive.google.com/file/d/1-TbnNxJgKEZrJIuzaVMjf62Q0XEA_Hu-/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/720453578543726642/1194753470088106035/screenshot741.jpg?ex=65b17fe0&is=659f0ae0&hm=df96f36b78d532c74e41b4aaed554d1973a7e1d9015d29063e4d6cf3f376bfdf&)
 
