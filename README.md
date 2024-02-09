@@ -33,217 +33,199 @@ Also, a few of these skins are merely jokes and are very unplayable
 ![](https://cdn.discordapp.com/attachments/864983473819353138/1205335479793483796/screenshot851.jpg?ex=65d7ff24&is=65c58a24&hm=8594ed5f640dde114a5a13862e8b96969b78890ec6142ab270ce3d65b4fb323e&)
 
 ## [Laplus Darkness Again](https://drive.google.com/file/d/1JkC5yM0weSCKpvrzXZlrlBw7MYqUzA37/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194755011381567488/screenshot746.jpg?ex=65b18150&is=659f0c50&hm=6787e8ad9be92481cc4012b7d0f25228a746d73bbbd1499a3271cceab5fd0439&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335488978751569/screenshot852.jpg?ex=65d7ff26&is=65c58a26&hm=5af3e541879cab65f87116febc174804f3e0b8960ee0a9246464ed6c51bf0d2b&)
 
 ## [Granat Gris 2](https://drive.google.com/file/d/1ymVL98V3AM4B4IcnUy5OpbeafDa5HLn0/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194755182572077086/screenshot747.jpg?ex=65b18179&is=659f0c79&hm=dbd21d3c6fef52262dd6ab2bd3994132d5751e5aa2fe04f2ff9dd936da35d3d5&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335499623891014/screenshot853.jpg?ex=65d7ff29&is=65c58a29&hm=9776238b6b92ce9b162a79fa82ea83d43f9dd575ed51e2149d4d775e2043cf64&)
 
 ## [momofuries](https://drive.google.com/file/d/1PO4tOmZzrhJSiDjjJuZuVy3EejwRs1wI/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194755513712386089/screenshot748.jpg?ex=65b181c7&is=659f0cc7&hm=271461770fcd9820504a123aedc38a1742c55fa7b80a2c3871db214dbae0b90a&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335510550319124/screenshot854.jpg?ex=65d7ff2b&is=65c58a2b&hm=fcab74532da2f08ad4a2d3a95804ced2e13045f106abfeaaf95cf358d1cc208a&)
 
 ## [Yutori Natsu NM](https://drive.google.com/file/d/1mihqCR_Neh5NX285cCqaDMGfmg5gJQSN/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194756215977295872/screenshot749.jpg?ex=65b1826f&is=659f0d6f&hm=69aada14d5fe2ab1b9cbd0bf6e6cb86e160d82c72a35dea9d55a35dbb36ae127&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335522864529438/screenshot855.jpg?ex=65d7ff2e&is=65c58a2e&hm=424cecca342862b9620cea3d10cbdb9b91095d20179f182202ddf01bbd23c95f&)
 
 ## [YUtori Natsu Again](https://drive.google.com/file/d/11V9LpeJ9TgGyiQF83fO8F-TINGBCIscB/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194756628013125772/screenshot750.jpg?ex=65b182d1&is=659f0dd1&hm=e16fc8cce18fa4f7d86f31165415c29af1d15d3a3970d9f8ca0ff5685c0dd90c&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335530758209566/screenshot856.jpg?ex=65d7ff30&is=65c58a30&hm=d034bda85d9238c7214a7935260b8a534f150d46a0037c1ed2cb42c5bd59a525&)
 
 ## [Arona](https://drive.google.com/file/d/1ITK0AIxss2J0hN3o41uaMZ3Hf4iRMv-U/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194756849346560110/screenshot751.jpg?ex=65b18306&is=659f0e06&hm=adade28928a82d3d8bf6a281ed69a14e40897c08baf9e5c0deaea76adf392a67&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335538681258024/screenshot857.jpg?ex=65d7ff32&is=65c58a32&hm=333e756510a55d35fed08442021708ebd5bd35aac6e010d2f4a745fbe55b1214&)
 
 ## [Crystalized](https://drive.google.com/file/d/1AB7RX6mrlFjbzPtMHB-NAYxb4mHbeglf/view?usp=sharing)
-![](https://media.discordapp.net/attachments/720453578543726642/1194757206126645468/screenshot752.jpg?ex=65b1835b&is=659f0e5b&hm=7c2738a8ec0f15d0810678c7cdae4a02385fb151d0010aa815bd32eddb18188a&=&format=webp&width=1127&height=634)
-
-## [WhiteCat 2.0 EZ Skin RK](https://drive.google.com/file/d/1h2OfHzo23M5atqWvEAio8dujNyPfMDxN/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194757284228759572/screenshot754.jpg?ex=65b1836e&is=659f0e6e&hm=f8e4da2d55a36484485f0a6a422674fe9bbc849dfb5fbbf92cc181209be224d6&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335546571005972/screenshot858.jpg?ex=65d7ff34&is=65c58a34&hm=f5627f1a6ba70654f7d8e5c38d48b4e09ccc3faada1911af5495c9e1dde7c674&)
 
 ## [WhiteCat 3.0 Aqua](https://drive.google.com/file/d/1h3LxLQsOchMuSW80cO-Fx5xaYqUcU_Zi/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194757670364774533/screenshot755.jpg?ex=65b183ca&is=659f0eca&hm=6643ec32a8d72b0251d3c3cc76c26eff2f7334a46c394c4539cfc8ebbcece51c&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335565596106772/screenshot860.jpg?ex=65d7ff38&is=65c58a38&hm=e270a0af6ee0b04177aaac8bbc1361f4e749a643ee163201faa9fed840691901&)
 
 ## [WhiteCat 3.0 Blue](https://drive.google.com/file/d/1Ftk2RR9qvpobu2sI0DJ_6ahCHFLP90p3/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194758067804446830/screenshot756.jpg?ex=65b18428&is=659f0f28&hm=26fb56d876af2c3d1bb04ca3611f43fddc8ace521d4bf4cf3aacb7b9140329bb&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335572365975592/screenshot861.jpg?ex=65d7ff3a&is=65c58a3a&hm=691623613c07116350159fd4e4c683d7d6707867769a0922bd4707ce5744684f&)
 
 ## [WhiteCat 3.0 DT](https://drive.google.com/file/d/1DjgrKdtG8Kt-sgbrsXaDxiHDcPwlWb_c/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194758297153196042/screenshot757.jpg?ex=65b1845f&is=659f0f5f&hm=2bc4c0e70c3aebe9a9639d9de49465e263a33166530691deb34dbfb2415d6349&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335578783260743/screenshot862.jpg?ex=65d7ff3c&is=65c58a3c&hm=bb22633c530b4afc098b5c7f106dcba68f69a1f6f1d0447da6b5f389d5225ac9&)
 
 ## [WhiteCat 3.0 EZ](https://drive.google.com/file/d/1eSEQUDFJ6RL29ZXZchxNzjpIFICOdNVI/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194758360516526090/screenshot758.jpg?ex=65b1846e&is=659f0f6e&hm=210263a4675a108be333ca1dc8083df00c436d3376723f0ee59fd0e9bcac1292&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335593517842464/screenshot863.jpg?ex=65d7ff3f&is=65c58a3f&hm=042fb4aa2b55c2c37f7fef19e89332a5fb483e81fc5b63529f7eb33f1dcccc58&)
 
 ## [WhiteCat 3.0 Pink](https://drive.google.com/file/d/1riRieVfveKEET5FGaX9noK2mXFsqwaA6/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194758704264908901/screenshot759.jpg?ex=65b184c0&is=659f0fc0&hm=03bb4787e2361dd514cef71924c13ed3572f86bf37261e99dbbacb523b8f5528&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335602321555527/screenshot864.jpg?ex=65d7ff41&is=65c58a41&hm=5d35ae9f450be8fdfca7b1c8aa6efff28aaeae40dd4e8f731be706e72f40cb60&)
 
 ## [WhiteCat 3.0 Red](https://drive.google.com/file/d/1wHcLethOIaZOIUvDvPtgdktKP_Sv2dzf/view?usp=sharing)
-![](https://media.discordapp.net/attachments/720453578543726642/1194758953536589824/screenshot760.jpg?ex=65b184fc&is=659f0ffc&hm=283df56019dae23a0e89740f97654092505c94cfabc29138df772e43d6107502&=&format=webp&width=1127&height=634)
-
-## [WhiteCat 3.0 Sand](https://drive.google.com/file/d/1aAL-0QpUk_oZfopCg-85k4f7qwMI2_Za/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194759078631714979/screenshot761.jpg?ex=65b18519&is=659f1019&hm=b7a90f482370ddd66f389852ceb88e29dae6d7cef8e4530c17f2dd23a548f7c5&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335612425768980/screenshot865.jpg?ex=65d7ff44&is=65c58a44&hm=8311f650e34701449eb77caa7279fd4958774a1c55dd205bc1174aad8dc50a9c&)
 
 ## [WhiteCat 3.0 V1](https://drive.google.com/file/d/1GwAAZCwDP3CBvT625STw_f4DFvkuy0W-/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194759333242748938/screenshot762.jpg?ex=65b18556&is=659f1056&hm=2b41312058fdeeb7728d390ca9620f55310f3a6c24fc68ce6b7847e337dc50d3&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335621682331771/screenshot866.jpg?ex=65d7ff46&is=65c58a46&hm=b8fdaebf16d8786d5fdb1c63a5cd0f419b9b2462d11297d192b95a28688f1120&)
 
 ## [WhiteCat 3.0 V2](https://drive.google.com/file/d/15i8wjWI0ho7ZRYay-I4ZIgoSQ98SzN3r/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194759588881379458/screenshot763.jpg?ex=65b18593&is=659f1093&hm=8d10a45be4a44cf29982f76d98bdcb16917de301befd04dca3ae3344dfb9f27d&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335629970280468/screenshot867.jpg?ex=65d7ff48&is=65c58a48&hm=aa219c0bca9be53eb4ba6033ffb8daaf4503c0968f98012e3578f632f1f45ccf&)
 
 ## [WhiteCat 3.0 V3](https://drive.google.com/file/d/1ZXoFp_f5zqv19hNsPYACgqL7SLIYqtIV/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194759995292663979/screenshot764.jpg?ex=65b185f4&is=659f10f4&hm=4eb4c530f924fb82d6847c9cd438731200f5c6f2e84798af3859117de53bf7e3&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335637603917834/screenshot868.jpg?ex=65d7ff4a&is=65c58a4a&hm=b490b334b415f8093e6c5c7c6120c09cb50b3f66df821b74351cf91aa3c34369&)
 
 ## [WhiteCat 3.0 V3 Plain](https://drive.google.com/file/d/1TFSJEBBUMa8yMHhE8HbpZzPZafL9fo96/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194760192450101388/screenshot765.jpg?ex=65b18623&is=659f1123&hm=a74a3508f42e60ff4461fb9e35ff157efc4bd8f719c62d58fbf79e63e4be8091&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335645036486688/screenshot869.jpg?ex=65d7ff4b&is=65c58a4b&hm=1af1b3c3e7bb6abca7e1cd9944bc1173e322057dee69da67ef7e3dcc4ba443ae&)
 
 ## [WhiteCat 3.0 Violet](https://drive.google.com/file/d/1tIyAuM6g0y9xwCWwwn1VjDb-KDbL0_7c/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194760435510034614/screenshot766.jpg?ex=65b1865d&is=659f115d&hm=e067fd705c63d7e42137e9ebeb928284f368673c51ff583dff4ce48befde947c&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335652800135218/screenshot870.jpg?ex=65d7ff4d&is=65c58a4d&hm=e26a9467b493b85aa105fb58a13fa003b355ba246c90976226db0ece989526c6&)
 
 ## [WhiteCat 3.0 Yellow-Wine](https://drive.google.com/file/d/1xr7cYJQzMtbK9NnUp-RiuQrHk-f9U0pl/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194760609292619957/screenshot767.jpg?ex=65b18686&is=659f1186&hm=96153efd8075c839e94ddf8e7ba6146665f5961ea0cc4f8979b7920e369ad54a&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335659129085993/screenshot871.jpg?ex=65d7ff4f&is=65c58a4f&hm=e03e68e178ee8b1345983d97c300371c058ee41d0232599f2068248206b8dc58&)
 
 ## [Kozeki Ui Arista](https://drive.google.com/file/d/1wKL35PVNQslpMoRQij8gw_xWyODk9YZi/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194760856626528307/screenshot768.jpg?ex=65b186c1&is=659f11c1&hm=472d93937356c5161f23e2d62fcb360b29c66dbbafc94941101a699aa65ac669&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335667954163732/screenshot872.jpg?ex=65d7ff51&is=65c58a51&hm=71ebfacf4034d4d95723c3831eacc7545b528da5b8e8743e09094ea10252e69d&)
 
 ## [Paraqeet Boop 2.0](https://drive.google.com/file/d/1Nza9EjV34i6wZDEnASdE6bqtZnMX-urk/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194761187037020291/screenshot769.jpg?ex=65b18710&is=659f1210&hm=ea07cc35bf8e6d802f10afd506b4a20448b126cbc28f95da0659cd82276d6206&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335675260506122/screenshot873.jpg?ex=65d7ff53&is=65c58a53&hm=5f8423208dce9369b08b008e41994681862585975b8f8b44add2f76cf1939e77&)
 
 ## [Azure Snowfall](https://drive.google.com/file/d/1UfAwyPVjBN_vR-32OFE9dw_8Cv5p7as2/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194761442755358830/screenshot770.jpg?ex=65b1874d&is=659f124d&hm=f528548867c3b9560a5cdcfe905872c0cf67a463741fd40b0ade085236e83c18&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335684781580288/screenshot874.jpg?ex=65d7ff55&is=65c58a55&hm=3b68587ece5c71e30d69f6196f8efe1cc85b000bc2ed22f77f10f5ca4f52c4b1&)
 
 ## [Wintherest](https://cdn.discordapp.com/attachments/720453578543726642/1194761442755358830/screenshot770.jpg?ex=65b1874d&is=659f124d&hm=f528548867c3b9560a5cdcfe905872c0cf67a463741fd40b0ade085236e83c18&)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194761885480923286/screenshot771.jpg?ex=65b187b7&is=659f12b7&hm=9a131793254c89ed13b582424a2a85f0e422676b1d1ec754e2c4cd5654ce4ed3&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335694625480754/screenshot875.jpg?ex=65d7ff57&is=65c58a57&hm=ccaf2bf280d5ebca2a25d7b14dc42ea0de682bfe629bf08e7e9894ee6dc99b0a&)
 
 ## [Xooty](https://drive.google.com/file/d/1WDF_ge2QgbNC-09aEcjs2AAQdmstlaI4/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194762179359031406/screenshot772.jpg?ex=65b187fd&is=659f12fd&hm=50fe622f153f99a9047549c4fecdbff52ba5f3d8024923da65e97d1b04ad7f75&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335701630226513/screenshot876.jpg?ex=65d7ff59&is=65c58a59&hm=d968fe2306023ad7708a6972f2f98c192e1b6578c22c68cf451079c9284c74b5&)
 
 ## [Apraxia Touney](https://drive.google.com/file/d/1mKtfeM9Mvz6C47j1rC9AVMWG5lJ-Iki0/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194762780373430342/screenshot774.jpg?ex=65b1888c&is=659f138c&hm=46e073deb9ca758c15ca9617b2f4ecb7339a226456536f7ad2eb855dd79226df&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335716314222692/screenshot878.jpg?ex=65d7ff5c&is=65c58a5c&hm=3c55c25ca41cadd77886d5312ed05709362c0ea8bb32052787619d7f3a5099f9&)
 
 ## [Gawr Gura](https://drive.google.com/file/d/11Mtid5r5BmevSBtWejaDqvVhrJ_4L7Z1/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194763819956842586/screenshot776.jpg?ex=65b18984&is=659f1484&hm=39f44dc2495dc8ce919625a3f84fac0065abfa77b21807b9bf184733ddf68c43&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335732139335750/screenshot880.jpg?ex=65d7ff60&is=65c58a60&hm=b9aa6d77187538b1094b6ff2b0b71da5715f7749c8856f319a1173f1f7d7747e&)
 
 ## [Hakos Baelz](https://drive.google.com/file/d/1fk53RHAO-ERTHroG8i-JA4PxCNZidGcV/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194764041009250435/screenshot777.jpg?ex=65b189b9&is=659f14b9&hm=78eb502368e964d50b81ce3924c491f6a98ad927919c3bd07dc82a9084b700e9&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335753068908566/screenshot883.jpg?ex=65d7ff65&is=65c58a65&hm=57c15c9a310897495158d99cf11bd3564797d0fc681549126cbb280979a91f39&)
 
 ## [if there was an endpoint](https://drive.google.com/file/d/1ZRDwGd2-RUNwmRD6XGasmCIPbXVMO1mE/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194764395838976070/screenshot778.jpg?ex=65b18a0d&is=659f150d&hm=3c1ab9eeed1534cba4a74fb3961700b90a6e5f12933fcb1b924570aab1d6f1f3&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335760002220102/screenshot884.jpg?ex=65d7ff67&is=65c58a67&hm=b864ccf76f3e9ea2853a3036f6f5f1a2c752b507341e4786088f4945549656f8&)
 
 ## [Ranni The Witch Elden Ring](https://drive.google.com/file/d/1FDSUofaUIZ4WDRUeKWmae9vxHsOZPKoz/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194764621484138608/screenshot779.jpg?ex=65b18a43&is=659f1543&hm=68a7581aef3c4bb861a2c492ca9985db7be6b9e4c11b20f38bb99386c0e65f3f&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335778083741796/screenshot885.jpg?ex=65d7ff6b&is=65c58a6b&hm=ce711db8e4975c007fc9be4a63a5c72f918aee44ea83326e6a8a38fe1dcd8415&)
 
 ## [Cosmos KR](https://drive.google.com/file/d/1ZKQ4y6mJogSvBOoqZTwX55zVx6LUcPms/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194765042038620222/screenshot780.jpg?ex=65b18aa7&is=659f15a7&hm=a7171ff85709c8f727bc476a5fcbc62a11da24f7950dbe01cfa90de505546e58&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335790692077588/screenshot886.jpg?ex=65d7ff6e&is=65c58a6e&hm=1cbabffce02e1841d3d79d90c71b7fc060e6ac23c9f0b50b4ea3bc6c2af24f97&)
 
 ## [Crown Dark](https://drive.google.com/file/d/1c3kilA73FaIKNuGuZ3WQ3UmFspO9OEXy/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194765334574542919/screenshot781.jpg?ex=65b18aed&is=659f15ed&hm=e3b4bf47ba8da56a110f1ca30377e5c5325f23c33e72d3f7890fe453c88528e1&)
-
-## [Sakuropia](https://drive.google.com/file/d/1GY9qRJfdokLylqyD_Iv1pBMUceTxX1cb/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194765639500447764/screenshot782.jpg?ex=65b18b36&is=659f1636&hm=266f4ea5f83ab96d841eac4aac702895fb4ce1e318b0b19bbbb760f3ad996e1e&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335810375950418/screenshot887.jpg?ex=65d7ff73&is=65c58a73&hm=eb7deb810c0e18e215e89a858ae3ee84a420bbb1a2220a023416745012ae2657&)
 
 ## [Megumin](https://drive.google.com/file/d/1t4QWJGO6MRaWNpWImX9xgFzCu9rVBt9B/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194765838906040340/screenshot783.jpg?ex=65b18b65&is=659f1665&hm=0b4afa8fe2d2b0989a8ac028596d084050752b613898f5411e93ba25c3d87597&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335819879981146/screenshot888.jpg?ex=65d7ff75&is=65c58a75&hm=48f71cb3c4315960b0d6706a01a3ac6129d983423eadd5725ddac7d81c716481&)
 
 ## [boblow](https://drive.google.com/file/d/1aTi5GRqXs1aBt7CM249l9L3Hyu1HRoMZ/view?usp=drive_link)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194766098093047868/screenshot784.jpg?ex=65b18ba3&is=659f16a3&hm=0ac85c6abceabffb1c1a0aeedbc54dbbda85486ff066cac4e0021c3fb0fd708a&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335852583092224/screenshot892.jpg?ex=65d7ff7d&is=65c58a7d&hm=09342be63492a23c2f4a70769dee41e27b07a1180c95dae618cbb41c15677565&)
 
 ## [boblow Bocchi The Rock](https://drive.google.com/file/d/1AG65VWDxjQsdwgDnYHW5hau7sNbFwBcj/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194766250228858951/screenshot785.jpg?ex=65b18bc7&is=659f16c7&hm=8a4f67ce6f78dd28baabef4b5f84932047f53f8ea2bb9eb7c68cc08604682582&)
-
-## [Bocchi The Rock](https://drive.google.com/file/d/1_afUGRxkSK_k5JGyQ_3k-DzwoV9p6bYI/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194766461160402994/screenshot786.jpg?ex=65b18bfa&is=659f16fa&hm=39a1a6b1771a11e0f82ca3f0898953c02c054fc7072bfc1731472f15bb85e1dd&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335860049088533/screenshot893.jpg?ex=65d7ff7f&is=65c58a7f&hm=bf6c81f9768d0a75dd4b6ecd10a04fc6d38b81a277f0de4bf3b8c321445a0205&)
 
 ## [Cinia](https://drive.google.com/file/d/10zpA64toRl_ufvTxWNGnHXB72NCkV9Ss/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194766764559585371/screenshot787.jpg?ex=65b18c42&is=659f1742&hm=c8b45bc41bd4ea02c5374c7470a1af2ef367141923dc106d9c1aacfd6e051bb9&)
-
-## [CS](https://drive.google.com/file/d/1VMirEHNzSvY7acFS2ugKpNC17EGQ5Xi_/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194766937822072962/screenshot788.jpg?ex=65b18c6b&is=659f176b&hm=831c88233a2cb8974e93edf86d681afb64c407c76c5fb997970fa6e1452c2197&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335868995280998/screenshot894.jpg?ex=65d7ff81&is=65c58a81&hm=be579734875e760fbd88fba42f4f037e17cec7340fd2f0e5891ac1dd66a00a46&)
 
 ## [Decaten Tekkito](https://drive.google.com/file/d/1JkMeghdUFcSgcdxgg0VXjiVLT_3X458T/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194767208723796028/screenshot789.jpg?ex=65b18cac&is=659f17ac&hm=e3f960f7d016d14fbb224763e19fff9b69f2e6de17a79f7f284a2058cfbad6f1&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335875790184548/screenshot895.jpg?ex=65d7ff82&is=65c58a82&hm=2f454505cfe2dd9e592a18a3424005108e04e1cafd1b2e85686024fa49ebabfd&)
 
 ## [Dyssodia Easy](https://drive.google.com/file/d/1vzQ4CEBS_kzLUh7Im5SuTxZ1u32q2p3x/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194767439481802772/screenshot790.jpg?ex=65b18ce3&is=659f17e3&hm=b255d1c34d9804e9b250d32329070b7752af7b7bc59bcc579e07675ff7aadce7&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335885927948358/screenshot896.jpg?ex=65d7ff85&is=65c58a85&hm=09bbdde33fbbdfb486d31f0054d0c09c16dc3829ce8a5b25352c88720abb10b4&)
 
 ## [Flying Tuna](https://drive.google.com/file/d/1f1wq9aQda3j5u0vyanAkkZQwfEii7isz/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194767642813268108/screenshot791.jpg?ex=65b18d13&is=659f1813&hm=0e72c9fbc8fd0a78356da7bae605ca410dd65e2bb7775215ffa66ae7e0870a69&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335894056505344/screenshot897.jpg?ex=65d7ff87&is=65c58a87&hm=6757eab02380eb2192df429f54e3f9f6b1a663ab661e6a3a22f7cbec85d8ee72&)
 
 ## [Gawr Gura InstaFade](https://drive.google.com/file/d/1wqBdYZcgf5Qd85aeplTPTXHr1H0TfyQ-/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194767714447802448/screenshot792.jpg?ex=65b18d24&is=659f1824&hm=d583d7156c44f876dd1e4dd8649acca9cd81fafb7a12eeed0152193b13515d81&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335709087436860/screenshot877.jpg?ex=65d7ff5b&is=65c58a5b&hm=c26f18b55b6500919439dc477ae42a8fba5204527ecf45c6cceb46c3b376d0e2&)
 
 ## [Khz](https://drive.google.com/file/d/1UtzAEKITwQRVC5p_rxa2P5FWCwn3ryPA/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194768196696285295/screenshot793.jpg?ex=65b18d97&is=659f1897&hm=b859d4b798936942eb9997cc8a1c2e275f7d39c2abbf6abcc82ce9c86d3771fb&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335915954970624/screenshot900.jpg?ex=65d7ff8c&is=65c58a8c&hm=14bdcccd796a2d4ced56375cb1ee14d8cc553d518f5e245097b8a23ca0af071d&)
 
 ## [Ayunda Risu](https://drive.google.com/file/d/1oU7_xSq1lnq5m9hDtvjt0-xz-o6kjVpx/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194768392956166237/screenshot794.jpg?ex=65b18dc6&is=659f18c6&hm=bcd8cffdb1a342d330925cf1b37f887a6b1194423a054d147dc178a09450a97d&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335844471312495/screenshot891.jpg?ex=65d7ff7b&is=65c58a7b&hm=d63f732439463f21d8173caacc31c435936f4fe2f1a0b3753bcd561b7be1a9b5&)
 
 ## [Nakiri Ayame](https://drive.google.com/file/d/1UNojgSEO1lsgtbcgFPpvQ58k0qxnbtJT/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194768587882233876/screenshot795.jpg?ex=65b18df5&is=659f18f5&hm=fb6b8d41fb3c382e99b2b1651878e50fa5a0950e5c25984a0eba5c44054772ff&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205336000344236182/screenshot908.jpg?ex=65d7ffa0&is=65c58aa0&hm=4e3768e83482e148c4970a1695ad939c8672cf78c4cc7120c695a8cd2814fa5e&)
 
 ## [Natsuiro Matsuri](https://drive.google.com/file/d/1R6T30L86CgWQgg3pKPJTaremcA9C2jyo/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194768843562831963/screenshot796.jpg?ex=65b18e32&is=659f1932&hm=742b17e23c012f3b1fac4a84b5dda8ed8836650f3c65ca55054d56651a5b25b4&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335747033309214/screenshot882.jpg?ex=65d7ff64&is=65c58a64&hm=d7f9dfe67d20fd8c13899047732a9d060538aa81628faa93a6d761d73cc31f8b&)
 
 ## [Shirakami Fubuki](https://drive.google.com/file/d/1wc46orXPGe6TrU_qdjlSmv6thK2Kah64/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194769030460997723/screenshot797.jpg?ex=65b18e5e&is=659f195e&hm=89fff6dd32c9b32dec524000e6a065fa2b7cccb5e92242e150669cc9bf2afc35&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335738829242398/screenshot881.jpg?ex=65d7ff62&is=65c58a62&hm=dda728ab3f6025a86818ebf11693462c5fee85851a0173647b2f93ed25e74fcf&)
 
 ## [Hyper Pigeon](https://drive.google.com/file/d/1hct42D0iI_FwmD4809WSjg56TPm2OaWl/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194769384695148554/screenshot798.jpg?ex=65b18eb3&is=659f19b3&hm=665cbbe03f747af03330f25cae58d22157c0cf7865f765840a6d29d2232b27e2&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335908401025024/screenshot899.jpg?ex=65d7ff8a&is=65c58a8a&hm=813c521e672151a50f1ed069e1322985ab1fb352932d72b1c07d19443f7524e7&)
 
 ## [Konpaku Youmu](https://drive.google.com/file/d/1iJ9ilcJ_2cCTYs8LlfEMitUw-NMfRxgL/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194769616409464953/screenshot799.jpg?ex=65b18eea&is=659f19ea&hm=739e066a4458b406ce9f83ba6d471de5f78097d75bec5016e58847d592c5eeff&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335923236143134/screenshot901.jpg?ex=65d7ff8e&is=65c58a8e&hm=0af0324c5b0c361238f21e4d13988625473fcf3e23af17936fb8726fd7c5c218&)
 
 ## [Malis](https://drive.google.com/file/d/1ABDvxyPuDA96pWqEP-w8OS_73GZurFQ4/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194770350895026386/screenshot801.jpg?ex=65b18f99&is=659f1a99&hm=b31c6454b407da883a8b11d7f72f4394066512689e3f934e69ae7124b22d94d7&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335943469473852/screenshot903.jpg?ex=65d7ff92&is=65c58a92&hm=da66bde09d2157f9d64b454c90745b71b83e2daf2e7364c86024f3fc3772a537&)
 
 ## [Mathi Ensalada](https://drive.google.com/file/d/1RAvJzBuxZx_Xp46dkDj7-EmGshwd9A3S/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194770622832713738/screenshot802.jpg?ex=65b18fda&is=659f1ada&hm=6f5b0119b7f6561a0eded71d7c48ebe7b6825fb1ddb8e748afaf7967cd20ed8b&)
-
-## [Mathi Ensalada Other Cursor](https://drive.google.com/file/d/1UWAWqcZgHVc9UYhL9mT-HgAiW4GAsVB0/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194770799471644692/screenshot803.jpg?ex=65b19004&is=659f1b04&hm=7b3a4575202007acd5c3592981ad443bddd453307886e4d9380ae1834ba94b1e&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335951979843604/screenshot904.jpg?ex=65d7ff95&is=65c58a95&hm=1e1c930f8d1856c8d54ac3a86e7c5b85efc6d5a5a7b097f42fbca746d5d8cbab&)
 
 ## [MonkoEdit](https://drive.google.com/file/d/1R9zfnXlqujSWCp9ZtudSJZovR9upGMBT/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194771018946990091/screenshot804.jpg?ex=65b19038&is=659f1b38&hm=74e40f9a76fbb10bdedf6603bff3d44a7e972c41f39d86f22a1a6351965f31d8&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335969645989928/screenshot905.jpg?ex=65d7ff99&is=65c58a99&hm=8d2c3d2081de71dea113ee17b77038b5b18429f55ed6009f27e26305ab6e7639&)
 
 ## [MonkoGlassTest](https://drive.google.com/file/d/1zdv9HSjy-GhCJPvLbh7K6QIKlaqv9YXs/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194771159934324847/screenshot805.jpg?ex=65b1905a&is=659f1b5a&hm=5906ee0514b6717b5ba28992ca48d48069609be9be8c8d29c78e2513b5fd4cb0&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335977342803999/screenshot906.jpg?ex=65d7ff9b&is=65c58a9b&hm=33d4af42fd568a9e2f1072a330581eceabd86719e763f02791d0474b4cc3ab59&)
 
 ## [MoonShine 2.0 NM](https://drive.google.com/file/d/1eFT-TEPHTN1v8p2j2ahTsXMAmVV21W0o/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194771349491683419/screenshot806.jpg?ex=65b19087&is=659f1b87&hm=8021c7c9a0f3557073e709e3387e94476032b78c2525acdf7679ac005fb23b82&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335989283852388/screenshot907.jpg?ex=65d7ff9d&is=65c58a9d&hm=237843781cb0c612250a0d009f328b1667d3e62e4326b20cec1f79cdb1e70569&)
 
 ## [Night of Knights](https://drive.google.com/file/d/1Ocse4I8ytVPWz9_cds4SaaRVdtiUDWmN/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194771676009857044/screenshot807.jpg?ex=65b190d5&is=659f1bd5&hm=3f9a403ebc21daf85afd597667810cf501e50a542666cb25a677185e29cc8b1a&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205336013526794240/screenshot909.jpg?ex=65d7ffa3&is=65c58aa3&hm=3a79e8c8867b16ae2bcd19b2fedc91dcf8fa8393faaf619f59e2ff95d287c119&)
 
 ## [Sagitarius A](https://drive.google.com/file/d/1hN5F31VlKTpIvAFXEUz_7KEMu4fawEwq/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194771973117579365/screenshot808.jpg?ex=65b1911c&is=659f1c1c&hm=2096c30a60d79e2a708098ffe3811c454280226a5515cdcc347b059c5f4da8c0&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205336023060455444/screenshot910.jpg?ex=65d7ffa5&is=65c58aa5&hm=6acd5bc7e0c0977647d459c0d45569b1f0741418fe601197df7c5ccc70d03648&)
 
 ## [NM Sakamata Chloe](https://drive.google.com/file/d/1Xc_reeUqnxwknBWz_kY_LimUIwBWuAf7/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194772181746462830/screenshot809.jpg?ex=65b1914d&is=659f1c4d&hm=fe740984e3aba34947e57d9f5bd42f7bd52c0c1ad4fea8789244568aa3e39bb1&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205336031138811924/screenshot911.jpg?ex=65d7ffa7&is=65c58aa7&hm=2427923caeabae92b8bdc5bfbe6771af856c8ae2161137fde96bb4eb08ef0a7c&)
 
 ## [UmbraBlue Interface](https://drive.google.com/file/d/1Xmj4ob43mpayEzz3c7ZeB8oYkxZDf7Lr/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194772391960772740/screenshot810.jpg?ex=65b19180&is=659f1c80&hm=8d36449de550541e0fe171c7ea2867fae87c4b9d6f440b0e4cd0a49999496801&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205336039409852416/screenshot912.jpg?ex=65d7ffa9&is=65c58aa9&hm=a3a43bb8540d4d7c0ed8f205a094362863034695b3c1946b9b8fe4f110829266&)
 
 ## [riskin](https://drive.google.com/file/d/13MXW7tSvdzuv1Pj7UJQqicNqofpkwlef/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194772837588816042/screenshot812.jpg?ex=65b191ea&is=659f1cea&hm=8468996e95d79f54d2bf40171fa40c9da9f06d40fdf1f5a4add98d73185f018c&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205336062889820200/screenshot915.jpg?ex=65d7ffaf&is=65c58aaf&hm=99fc5fff24aef54a169137e7e65ef8e3a2982ad37598f3765a1efa0859fcfe8e&)
 
 ## [taro](https://drive.google.com/file/d/1DpcEDiXl51RFhFCg_s2Qbdhteqduh8Q9/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194773078404763708/screenshot813.jpg?ex=65b19223&is=659f1d23&hm=ab3b8f55e5179954aebd9b73873185a25e5667924983952a9bf46d46a6ac456c&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205336069936128000/screenshot916.jpg?ex=65d7ffb1&is=65c58ab1&hm=8d1dd43e89bab6be79ab48f3c6b4825994653affd4a61b158cc4ab1dfdf0a3e5&)
 
 ## [Amaestric](https://drive.google.com/file/d/1uQVya8rqZ2DHos3XvE_W4YWCxVWZmKYM/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194773323545063534/screenshot815.jpg?ex=65b1925e&is=659f1d5e&hm=df8d8779510012181cd5c9dbfde648357415a69a1f048ca3428da550717dd4e1&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335828856049694/screenshot889.jpg?ex=65d7ff77&is=65c58a77&hm=714b78a212b9724735e1030cbfbe76436d92c65f104692980fe2afe5ad3f746e&)
 
 ## [gonk](https://drive.google.com/file/d/1WClBN48oBFOHxFb0H3VAM_lmWOyrxzmH/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194773626491244725/screenshot816.jpg?ex=65b192a6&is=659f1da6&hm=9f4f010173a323e619132cb9b2235eeb1dbeedc19dd2a64103ae0aa0aff6b853&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335902134472815/screenshot898.jpg?ex=65d7ff89&is=65c58a89&hm=ba8924fd5da8dbec382701451b59123aeef391e53b73a094640e3c6b026e0e20&)
 
 ## [Uruha Rushia MinefrostID Edit](https://drive.google.com/file/d/1P509Bf9INsUXAPDHRd28BzLADPkuwZns/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194773862295015536/screenshot818.jpg?ex=65b192de&is=659f1dde&hm=03cf24b47c4de066f44db76d93208f1cebcbd21a91f862781c482b6f6de8adb7&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205336076647006208/screenshot917.jpg?ex=65d7ffb2&is=65c58ab2&hm=9d717ac0b9087a6e0927f041681df8100e4e77e473a1ef03acc3d58c6d01b877&)
 
 ## [Vaxei asfasfdaf 2018-12-09](https://drive.google.com/file/d/1t_6QQisSGN0G5APGgvW3UIIcGuq0QUet/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194774189714972772/screenshot819.jpg?ex=65b1932c&is=659f1e2c&hm=75cbe5d26de2e7505316d507554b911e51c504c3124d3a3dc9afd21f16cdcf04&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205336085748650034/screenshot918.jpg?ex=65d7ffb4&is=65c58ab4&hm=9601db260d04c0d41b0481412539c68d721b9840d1bbdc0714468df69c0ad404&)
 
 ## [Vaxei Bacon Boi 1.0](https://drive.google.com/file/d/1DZCLzDyXUG0Zk89GSePmPFqzslQO7wsZ/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194774427666227310/screenshot820.jpg?ex=65b19365&is=659f1e65&hm=312721ae40ce66d465b714924c38437cf56a91b4c0ac5f049f890a430fa888c9&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335554288517150/screenshot859.jpg?ex=65d7ff36&is=65c58a36&hm=7b6be7807051d61085d9c66b16f2327c74ae05469625ca68a096d6d6b2c00f91&)
 
 ## [Vaxei Bacon Boi 1.0 Blue](https://drive.google.com/file/d/1nNa3DUpO8pQNf-2rffoRtucicT5KGopc/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194774594968637510/screenshot821.jpg?ex=65b1938d&is=659f1e8d&hm=a1d79328f1f5d389583c39267e009058660e7b27b2183cd08ac1cfc510637d3f&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205336092895744080/screenshot919.jpg?ex=65d7ffb6&is=65c58ab6&hm=a563cdb07868e72c3cece7fa6676ef28ca7c3e35c741d5f3bf77b646f7431725&)
 
 ## [Vaxei Bacon Boi 1.0 Clrs](https://drive.google.com/file/d/1maYwhlNMJ6uR6ePT2P9oe9LrixzEUmQx/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194774743870619698/screenshot822.jpg?ex=65b193b0&is=659f1eb0&hm=53f26f993c76adbaadaa01883161abd35b5767e788f1441e72db841b99654c5c&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205336102815404112/screenshot920.jpg?ex=65d7ffb8&is=65c58ab8&hm=a32a259aed3b074a131b1adf386a59248caa00bb78cfb7e6f5b268e90ab60750&)
 
 ## [Vaxei NM Version 2](https://drive.google.com/file/d/1z-7rQBmcYYzsDxGa0SMYGM3LIO9SznZY/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194774973265494046/screenshot823.jpg?ex=65b193e7&is=659f1ee7&hm=2c76003ce311c39ab6280be74b312bc3b876492ed083bec9871158d393b19f64&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205336110784315392/screenshot921.jpg?ex=65d7ffba&is=65c58aba&hm=1fab77a96455ea7a0b8265e859209f7e24354f4ab77b07363646621d3e1f8b54&)
 
 ## [Vaxei 2023](https://drive.google.com/file/d/1gHqi3aLZo2xeOkpSQxQMl_aRyflGj1-w/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194775102395514951/screenshot824.jpg?ex=65b19406&is=659f1f06&hm=c7729c73122ad4e2bf77f497dcafe3ab0c0d7a4f457340b29c7eb46435cc2bfd&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205336118405374033/screenshot922.jpg?ex=65d7ffbc&is=65c58abc&hm=f6cfd8bab0d7cdbe1b1ba11fa53aab81fda9a4b972fd82727b114c04230b7fc6&)
