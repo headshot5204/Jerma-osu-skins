@@ -233,7 +233,7 @@ Also, a few of these skins are merely jokes and are very unplayable
 ## [Vaxei asfasfdaf 2018-12-09](https://drive.google.com/file/d/1t_6QQisSGN0G5APGgvW3UIIcGuq0QUet/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/720453578543726642/1194774189714972772/screenshot819.jpg?ex=65b1932c&is=659f1e2c&hm=75cbe5d26de2e7505316d507554b911e51c504c3124d3a3dc9afd21f16cdcf04&)
 
-## [Vaxei Bacon Boi 1.0[(https://drive.google.com/file/d/1DZCLzDyXUG0Zk89GSePmPFqzslQO7wsZ/view?usp=sharing)
+## [Vaxei Bacon Boi 1.0](https://drive.google.com/file/d/1DZCLzDyXUG0Zk89GSePmPFqzslQO7wsZ/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/720453578543726642/1194774427666227310/screenshot820.jpg?ex=65b19365&is=659f1e65&hm=312721ae40ce66d465b714924c38437cf56a91b4c0ac5f049f890a430fa888c9&)
 
 ## [Vaxei Bacon Boi 1.0 Blue](https://drive.google.com/file/d/1nNa3DUpO8pQNf-2rffoRtucicT5KGopc/view?usp=sharing)
