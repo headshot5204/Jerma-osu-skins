@@ -9,28 +9,28 @@ Also, a few of these skins are merely jokes and are very unplayable
 ![](https://media.discordapp.net/attachments/864983473819353138/1205335359517499502/screenshot842.jpg?ex=65d7ff07&is=65c58a07&hm=e04763e060d4dc4bdaa511e94e9f786ecc70a57652865982b1b17a969246ba02&=&format=webp&width=1127&height=634)
 
 ## [Mrekk Flowfy](https://drive.google.com/file/d/1o4ddc0M3kSCHfEm0VXXgKQq3souygV0c/view?usp=sharing) 
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194744381962465330/screenshot729.jpg?ex=65b17769&is=659f0269&hm=c2673c9ca045159cf92ef0f29fd63642ec7c0bf41fc3254d800fec890dd88acf&)
+![](https://media.discordapp.net/attachments/864983473819353138/1205335403654160404/screenshot843.jpg?ex=65d7ff12&is=65c58a12&hm=ae3160a6c65becfa981ef15981ce30a6ac1e97960f5d432ed736eb90dfbb66aa&=&format=webp&width=1127&height=634)
 
 ## [Sakamata Chloe](https://drive.google.com/file/d/1F0O1B6ISJ0bueaWSByr58E4jn-NNX05l/view?usp=sharing) 
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194745562587725885/screenshot730.jpg?ex=65b17883&is=659f0383&hm=2e70aa48641d77c3596b0be5cd6a3de261ab1695af6ee58a129d897f08ea45b4&)
+![](https://media.discordapp.net/attachments/864983473819353138/1205335415272251402/screenshot844.jpg?ex=65d7ff15&is=65c58a15&hm=ea53f72fe2445999f72b7600c77b6317e1021b70363173891753fe5019f2d913&=&format=webp&width=1127&height=634)
 
 ## [WhiteCat 2.1 Old](https://drive.google.com/file/d/1DZr8-Oo2Z_M7KDN2D4VDYjSv4YB5CnVh/view?usp=sharing) 
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194746418875875329/screenshot737.jpg?ex=65b1794f&is=659f044f&hm=06a97058531961dfc7ef3ef822188fe1556197ac0b21903a7542ecd2e10104c2&)
+![](https://media.discordapp.net/attachments/864983473819353138/1205335425250496522/screenshot845.jpg?ex=65d7ff17&is=65c58a17&hm=d4e990d4604e03cc3c6f926ea19b31d30c6248e80f091f18de0b99a278fb7467&=&format=webp&width=1127&height=634)
 
 ## [Hayase Yuuka](https://drive.google.com/file/d/1-TbnNxJgKEZrJIuzaVMjf62Q0XEA_Hu-/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194753470088106035/screenshot741.jpg?ex=65b17fe0&is=659f0ae0&hm=df96f36b78d532c74e41b4aaed554d1973a7e1d9015d29063e4d6cf3f376bfdf&)
+![](https://media.discordapp.net/attachments/864983473819353138/1205335447665123358/screenshot847.jpg?ex=65d7ff1c&is=65c58a1c&hm=9b0f9d7032eb782d23263d85f18f36a9ada517da6933a931f800806c930aaf58&=&format=webp&width=1127&height=634)
 
 ## [Ayaka](https://drive.google.com/file/d/1t2c24ByfjssnKwNYPGkwOxOcmaLI6jyv/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194753734937419886/screenshot742.jpg?ex=65b1801f&is=659f0b1f&hm=9e6d68e18c9857e7a06429a85d6d8a16e42c57160ebe023f46d2d38851a67a4b&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335455495880744/screenshot848.jpg?ex=65d7ff1e&is=65c58a1e&hm=28317e5819876b9a31b0d6684e0286d8a8c96beb16aead049319a463c2d3fd6c&)
 
 ## [Laplus Darkness](https://drive.google.com/file/d/1xzqTyctFn1oQSVrWxUCHJq2qju-nwDuQ/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194754077242970182/screenshot743.jpg?ex=65b18071&is=659f0b71&hm=0f53543844f0282ad1f16f9d8b19ff77d8251833b0f7c68601225af02805d270&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335461854183434/screenshot849.jpg?ex=65d7ff20&is=65c58a20&hm=ea67bb7d11ca0b248ba3c375464d0c9bd3daaba858abc678ad4f51b2366b81d1&)
 
 ## [Naru V5](https://drive.google.com/file/d/1kMws5sdVtrUOILk1Q8nnIPOjcumK4xbb/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194754297435533415/screenshot744.jpg?ex=65b180a5&is=659f0ba5&hm=82eed8b9232a68b6a1bd952fb0abae39b415bae053d654ef649b7a3a9ec8a1a2&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335470444257351/screenshot850.jpg?ex=65d7ff22&is=65c58a22&hm=a6119b5e1d31ee1ad2e29045c7e9683b4b8ed902770e69b81b0ed07f1bd13eed&)
 
 ## [Mathi SK NM](https://drive.google.com/file/d/134EU71D4pXiNXc58TZjT7IbgYwfTPm7L/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/720453578543726642/1194754713636323348/screenshot745.jpg?ex=65b18109&is=659f0c09&hm=004bbffc7411e7925dcf348c5ef2e2dd2b6691b2865d250bdaefbfad4b709687&)
+![](https://cdn.discordapp.com/attachments/864983473819353138/1205335479793483796/screenshot851.jpg?ex=65d7ff24&is=65c58a24&hm=8594ed5f640dde114a5a13862e8b96969b78890ec6142ab270ce3d65b4fb323e&)
 
 ## [Laplus Darkness Again](https://drive.google.com/file/d/1JkC5yM0weSCKpvrzXZlrlBw7MYqUzA37/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/720453578543726642/1194755011381567488/screenshot746.jpg?ex=65b18150&is=659f0c50&hm=6787e8ad9be92481cc4012b7d0f25228a746d73bbbd1499a3271cceab5fd0439&)
